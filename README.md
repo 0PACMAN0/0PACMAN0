@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @0PACMAN0
+- 👋 Hi, I’m @0PACMAN0//(JAGAN)
 - 👀 I’m interested in life(not sure abt the specifics :))
 - 🌱 I’m currently learning me
 
